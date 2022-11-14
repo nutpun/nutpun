@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @nutpun
 - 👀 I’m interested in her
 - 🌱 I’m currently learning to survive in this world
-- 📫 How to reach me ...
+- 📫 Reach me .. mail on profile
